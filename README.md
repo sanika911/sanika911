@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning new features for developing and coding websites
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me sanikaraphel911@gmail.com
-- 📄 Know about my experiences 
+- 
 - 
 
 
